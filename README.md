@@ -1,0 +1,2 @@
+# namez
+diss
